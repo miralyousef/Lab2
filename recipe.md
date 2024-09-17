@@ -7,7 +7,7 @@
 - 1 cup chocolate chips
 - 1 tsp vanilla extract
 - 1/2 tsp ground cinnamon
-- 1 jar of nutella
+- 1 jar of nutella!!!
 
 ## Instructions:
 1. Preheat the oven to 350°F (175°C).
@@ -16,4 +16,5 @@
 5. Gradually add the milk and vegetable oil to the mixture, continuing to stir.
 6. Pour the batter into a greased and floured 9x13-inch baking pan.
 7. After baking, cut the cake in half horizontally. 
-8. Take the top half off and spread a layer of nutella. Then place the top back on, and spread nutella over the outside of the cake. 
+8. Take the top half off and spread a layer of nutella. Then place the top back on, and spread nutella over the outside of the cake.
+9. cut one slice of your cake. give it to your mom. eat the rest in one sitting. 
